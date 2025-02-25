@@ -8,3 +8,7 @@ Río de Janeiro, pese a no serlo, no es una ciudad más y por ello es un impresc
 
 ## Foto
 ![](https://media.iatiseguros.com/wp-content/uploads/2021/12/16093310/lugares-que-ver-en-brasil-1.jpg)
+
+## Informacion sobre Rio de Janeiro
+Río de Janeiro, como ya te hemos dicho, tiene muchísimo más que ofrecer en tu ruta de cosas que hacer en Brasil. Más playas, perderse por el bonito Barrio de Santa Teresa y subir los 250 escalones de las bonitas Escaleras de Selarón, visitar el Estadio de Maracaná si te gusta el fútbol,  conocer sus diferentes museos y, como no podía faltar, disfrutar de una divertida noche de samba.
+
