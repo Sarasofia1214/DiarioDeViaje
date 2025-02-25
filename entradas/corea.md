@@ -9,3 +9,6 @@ Seúl es la ciudad más grande de Corea del Sur así como la capital de este pa�
 ## Foto
 ![](https://media.admagazine.com/photos/618a710890c4ec9a52ca15ca/master/w_1920%2Cc_limit/29645.jpg)
 
+## Informacion sobre seúl
+Las atracciones de la ciudad son infinitas, pero muchos visitantes comienzan con algunos de los muchos palacios ubicados en Seúl. Comúnmente los recorridos turísticos incluyen Gyeongbok-gung y el Changdeok-gung que datan del siglo XV. También podrás disfrutar de antiguos templos y santuarios, hermosos parques públicos, diseño de vanguardia, centros comerciales y algunos de los mejores restaurantes de toda Asia.
+
