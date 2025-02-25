@@ -10,3 +10,8 @@ Aquí puedes navegar por el Lago Ashi en un barco de inspiración pirata, cruzar
 
 ## Foto
 ![](https://d0626f1e44.clvaw-cdnwnd.com/efd82a4c10d67d793c62b322158b9943/200003918-364f8364fb/Hakone%20Japonal%201-9.webp?ph=d0626f1e44)
+
+## Informacion sobre hakone
+Si lo tuyo es el arte, Hakone también sorprende con museos al aire libre, como el Museo de Esculturas, donde las obras se integran con el paisaje. Y si buscas relajarte, nada como un onsen con vistas a las montañas.
+
+A solo un viaje en tren desde Tokio, Hakone es una escapada que combina paisajes impresionantes, cultura y descanso.
