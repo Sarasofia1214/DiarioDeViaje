@@ -8,3 +8,5 @@ Montañas, lagos, aguas termales y, si el cielo lo permite, el Monte Fuji domina
 
 Aquí puedes navegar por el Lago Ashi en un barco de inspiración pirata, cruzar el torii flotante de Hakonejinja y subir en teleférico hasta Owakudani, donde los campos de azufre dibujan un paisaje único. No te vayas sin probar los huevos negros, cocidos en aguas termales y famosos por su peculiar color.
 
+## Foto
+![](https://d0626f1e44.clvaw-cdnwnd.com/efd82a4c10d67d793c62b322158b9943/200003918-364f8364fb/Hakone%20Japonal%201-9.webp?ph=d0626f1e44)
