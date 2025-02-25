@@ -7,3 +7,7 @@ Como capital política, económica, cultural, gastronómica y espiritual de Tail
 
 ## Foto
 ![](https://e00-expansion.uecdn.es/assets/multimedia/imagenes/2023/09/04/16938248112099.jpg)
+
+## Informacion sobre Bangkok
+ Su paisaje urbano ultramoderno se alza junto a las tranquilas comunidades a orillas de los canales y a los icónicos templos de Wat Arun, Wat Pho y el Templo del Buda de Esmeralda (Wat Phra Kaew).
+
