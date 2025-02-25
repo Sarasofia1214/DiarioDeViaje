@@ -8,3 +8,7 @@ Además de sus mercados y playas, Marruecos te cautivará con su arquitectura hi
 
 ## Foto
 ![](https://ecommerceapi.assistcard.com/Api/ImagesHandler/GetImage?freeImageCode=xes-viajarafrica02)
+
+## Informacion sobre africa
+Entre los más turísticos se encuentra Egipto, conocido mundialmente por sus monumentos antiguos como las pirámides y el Valle de los Reyes. Sudáfrica también atrae a muchos visitantes por su combinación de vida silvestre, paisajes impresionantes y ciudades vibrantes como Ciudad del Cabo y Johannesburgo. La elección depende de los intereses de cada viajero, desde la historia hasta la naturaleza y la aventura.
+
