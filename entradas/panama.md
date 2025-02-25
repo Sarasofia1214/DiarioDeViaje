@@ -8,3 +8,8 @@ Sin dudas, la zona más fotogénica y visitada es el Casco Antiguo. Declarado Pa
 ## Foto
 ![](https://res.cloudinary.com/worldpackers/image/upload/c_limit,f_auto,q_auto,w_1140/qduuuf8dzmbg9dxhwdkr)
 
+## Informacion sobre Panamá
+La mayoría de las construcciones originales fueron destruidas en diferentes incendios, lo que hizo que aparecieran nuevos estilos arquitectónicos como el neoclásico y el art decó que se mezclaron con las casas coloniales españolas, dando la fusión que tiene el Casco Viejo en la actualidad.
+
+
+
