@@ -6,3 +6,5 @@ Explorar África es como abrir un libro de aventuras donde cada página te invit
 ## Recomendación
 Además de sus mercados y playas, Marruecos te cautivará con su arquitectura histórica, desde las medinas fortificadas hasta los palacios suntuosos. 
 
+## Foto
+![](https://ecommerceapi.assistcard.com/Api/ImagesHandler/GetImage?freeImageCode=xes-viajarafrica02)
