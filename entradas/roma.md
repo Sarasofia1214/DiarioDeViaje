@@ -6,3 +6,6 @@ En Roma el número 23 está asociado a una frase, coloquialmente expresiva, que 
 ## Recomendación
 Te aconsejamos que lo visites no solo por su majestuosidad arquitectónica, sino también porque este estadio ha sido escenario de muchos eventos apasionantes (batallas navales, luchas entre gladiadores y fieras) que nos permiten descubrir cómo vivían los romanos. 
 
+## Foto
+![](https://www.enroma.com/wp-content/uploads/2017/05/Vista-a%C3%A9rea-del-Coliseo-scaled.jpg.webp)
+
