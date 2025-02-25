@@ -8,3 +8,9 @@ Una vez llegues a la entrada del parque y hayas pagado la entrada, un pequeño b
 
 ## Foto
 ![](https://www.viajeroscallejeros.com/wp-content/uploads/2020/12/parque-tayrona.jpg)
+
+## Informacion sobre Sanata Marta
+Además de playas y paisajes idílicos de palmeras, pasarás por una gran zona de bosque en el que vive todo tipo de fauna como pájaros y monos.
+Recuerda que para este trekking es muy aconsejable llevar dos botellas de agua por la alta humedad y calzado y ropa cómoda.
+Además para comer tienes dos restaurantes situados en la parte final de la ruta, aunque nosotros sobre todo recomendamos el que encuentra en Cabo San Juan, que sirve una comida deliciosa.
+
